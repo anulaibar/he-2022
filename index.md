@@ -1,14 +1,14 @@
-Finding the car
----------------
-The car is parked in P21 - ground level (marked level 1) - at this pin: https://goo.gl/maps/zGuNXZYX5e2E3qzM8
+#Finding the car
 
-<iframe src="https://www.google.com/maps/embed?pb=!1m18!1m12!1m3!1d2016.2400335466812!2d17.92755831608509!3d59.64565498177064!2m3!1f0!2f0!3f0!3m2!1i1024!2i768!4f13.1!3m3!1m2!1s0x0%3A0xa9046774718abdaa!2zNTnCsDM4JzQ0LjQiTiAxN8KwNTUnNDcuMSJF!5e0!3m2!1ssv!2spt!4v1658354954637!5m2!1ssv!2spt" width="600" height="450" style="border:0;" allowfullscreen="" loading="lazy" referrerpolicy="no-referrer-when-downgrade"></iframe>
+The car is parked in P21 - ground level (marked level 1) - at [this pin](https://goo.gl/maps/zGuNXZYX5e2E3qzM8)
+
+![FAJ 36C](https://photos.google.com/share/AF1QipNJa6q06FrmEqqLB6rKV20pZk5r2sqNLG4EHqx-wZdyAa0J6AI4xvFF2YtK5R-rfw/photo/AF1QipPvoFaA22xEcNKUIHIp9_zuNxn8ZJzMuDHNGCbz?key=ZnNzaDJDN1Z5Z1BDN01fcldkVGpWUDZZeUtsQTZ3)
+
 
 Walk from terminal 5 through "Sky City" and past terminal 4. Look for a black van with plate no FAJ 36C. Parking is already paid, just insert the receipt when exiting the parking.
 
 
-Starting the car
-----------------
+#Starting the car
 
 The car has "keyless start", so ithe key only needs to be inside the car. The gear knob must to be in "P" mode when starting/stopping. Hold down the break pedal and press the start/stop button to start the car. Turn the knob to "R" for reverse or "D" for drive. It takes Diesel as you know.
 
