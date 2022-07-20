@@ -1,19 +1,18 @@
-#Finding the car
+# Finding the car
 
 The car is parked in P21 - ground level (marked level 1) - at [this pin](https://goo.gl/maps/zGuNXZYX5e2E3qzM8)
 
-![FAJ 36C](https://photos.google.com/share/AF1QipNJa6q06FrmEqqLB6rKV20pZk5r2sqNLG4EHqx-wZdyAa0J6AI4xvFF2YtK5R-rfw/photo/AF1QipPvoFaA22xEcNKUIHIp9_zuNxn8ZJzMuDHNGCbz?key=ZnNzaDJDN1Z5Z1BDN01fcldkVGpWUDZZeUtsQTZ3)
+![FAJ 36C](./car.jpg)
 
 
 Walk from terminal 5 through "Sky City" and past terminal 4. Look for a black van with plate no FAJ 36C. Parking is already paid, just insert the receipt when exiting the parking.
 
 
-#Starting the car
+# Starting the car
 
 The car has "keyless start", so ithe key only needs to be inside the car. The gear knob must to be in "P" mode when starting/stopping. Hold down the break pedal and press the start/stop button to start the car. Turn the knob to "R" for reverse or "D" for drive. It takes Diesel as you know.
 
-Getting to our home
---------------------
+# Getting to our home
 
 Our home is at Odelbergsvägen 36, Enskede Gård:
 https://maps.app.goo.gl/MnZXymbNVhaMEpsV7
