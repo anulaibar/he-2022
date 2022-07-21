@@ -61,11 +61,15 @@ Bike keys and Vespa key is in the basket up to your right when you enter the apa
 
 [Skogskyrkogården](https://goo.gl/maps/aW27BpJ2nDNzVKBs6) is a one of only three UNESCO world heritage sites in Stockholm. It's a huge cemetery with huge pine trees.
 
+[Bryggartäppan](https://goo.gl/maps/oKEaQcSFr1i6Go1t8) playground in the style of old Stockholm
+
 # Further away
 
 [Sätraskogens discgolfbana](https://goo.gl/maps/Sys8SUrsU3L47wT99) has nice nature and disc golf!
 
 [Bandängens parklek](https://goo.gl/maps/bdMMETFWuNLPZbf39) is a fun playground with a splash pad and some animals
+
+[The old town](https://goo.gl/maps/7V6eFs4tEFY5Dhwr5) - enjoy the cobbled streets and houses from the 15th century
 
 # Eating out
 
@@ -74,6 +78,8 @@ Bike keys and Vespa key is in the basket up to your right when you enter the apa
 [BABAS Burgers](https://goo.gl/maps/U5UyMRwtskUBV3cFA) - Vide's favourite
 
 [Falafelbaren](https://g.page/falafelbaren?share) - Alvars favourite
+
+[Pong](https://goo.gl/maps/ohdbs99tKjqSdEvP9) - Our go-to restaurant for birthdays, they offer japanese, chinese and thai food buffet
 
 # Museums
 
