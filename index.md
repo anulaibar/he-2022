@@ -97,4 +97,4 @@ Bike keys and Vespa key is in the basket up to your right when you enter the apa
 
 Check out the map of [our favourite places](https://drive.google.com/open?id=1NGujzVNI1lADjlOzOTOPcUww1ncUwS1S&usp=sharing)!
 
-Also, check out the [Visit Stockholm](https://www.visitstockholm.com/) webpage for tips and up to date information about events.
+Also, check out the [Visit Stockholm](https://www.visitstockholm.com/) webpage for tips and up to date information about events such as the [pride parade](https://www.stockholmpride.org/evenemang/pride-parade/) which is fun to watch - it's at August 6 at 13:00 in central Stockholm.
