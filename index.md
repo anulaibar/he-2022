@@ -1,4 +1,8 @@
-# Finding the car
+# Welcome to Stockholm
+
+Soon your trip is starting, we wish you a safe journey to our home town!
+
+## Finding the car
 
 The car is [parked in P21](https://goo.gl/maps/zGuNXZYX5e2E3qzM8) in ground level (marked level 1).
 
@@ -6,11 +10,11 @@ The car is [parked in P21](https://goo.gl/maps/zGuNXZYX5e2E3qzM8) in ground leve
 
 Walk from terminal 5 through "Sky City" and past terminal 4. Look for a black van with plate no FAJ 36C. Parking is already paid, just insert the receipt when exiting the parking.
 
-# Starting the car
+## Starting the car
 
 The car has "keyless start", so ithe key only needs to be inside the car. The gear knob must to be in "P" mode when starting/stopping. Hold down the break pedal and press the start/stop button to start the car. Turn the knob to "R" for reverse or "D" for drive. It takes diesel as you know.
 
-# Getting to our home
+## Getting to our home
 
 Our home is at [Odelbergsvägen 36](https://maps.app.goo.gl/MnZXymbNVhaMEpsV7).
 It's a 40 min drive, here are rough directions:
@@ -27,7 +31,7 @@ It's a 40 min drive, here are rough directions:
 Our parking lot is no 3.
 
 
-# Our home
+## Our home
 
 We made the beds with clean sheets for you.
 In the bathroom we put out towels for you also.
@@ -40,7 +44,7 @@ We left a cooler in the hallway which connects to the car cigarette outlet - cou
 
 We also left frisbee discs and a screwdriver to adjust height of bike saddles.
 
-# Bikes and Vespa
+## Bikes and Vespa
 
 There are bikes in the bike storage next to the parking if you want to borrow - use the apartment key to get in. We only have five bikes though. Code for the code locks is 5736.
 
@@ -53,7 +57,7 @@ Bike keys and Vespa key is in the basket up to your right when you enter the apa
 ![Vespa](./vespa.jpg)
 
 
-# In the neighbourhood
+## In the neighbourhood
 
 [Enskedeparkens bageri](https://maps.app.goo.gl/DHUysJhRCNU6yC4g7) is our local café, a short walk through the park. Try the cinnamon and cardamom buns.
 
@@ -63,7 +67,7 @@ Bike keys and Vespa key is in the basket up to your right when you enter the apa
 
 [Bryggartäppan](https://goo.gl/maps/oKEaQcSFr1i6Go1t8) playground in the style of old Stockholm
 
-# Further away
+## Further away
 
 [Sätraskogens discgolfbana](https://goo.gl/maps/Sys8SUrsU3L47wT99) has nice nature and disc golf!
 
@@ -71,7 +75,7 @@ Bike keys and Vespa key is in the basket up to your right when you enter the apa
 
 [The old town](https://goo.gl/maps/7V6eFs4tEFY5Dhwr5) - enjoy the cobbled streets and houses from the 15th century
 
-# Eating out
+## Eating out
 
 [Palmyra](https://goo.gl/maps/PeLK7cuxkbyf1foX9) - the best kebab in Stockholm
 
@@ -81,7 +85,7 @@ Bike keys and Vespa key is in the basket up to your right when you enter the apa
 
 [Pong](https://goo.gl/maps/ohdbs99tKjqSdEvP9) - Our go-to restaurant for birthdays, they offer japanese, chinese and thai food buffet
 
-# Museums
+## Museums
 
 [Vasamuseet](https://maps.app.goo.gl/VGDjsHmyvSDkVL3t7) - the ship that sunk on it's maiden voyage 400 years ago and was later brought up from the bottom of the sea
 
@@ -89,6 +93,6 @@ Bike keys and Vespa key is in the basket up to your right when you enter the apa
 
 [Tekniska museet](https://maps.app.goo.gl/82HnSZYNytbDoyVx9) - technical fun for young and old
 
-# Other places
+## Other places
 
 Checkout the map of [our favourite places](https://drive.google.com/open?id=1NGujzVNI1lADjlOzOTOPcUww1ncUwS1S&usp=sharing)!
