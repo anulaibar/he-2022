@@ -63,7 +63,7 @@ Bike keys and Vespa key is in the basket up to your right when you enter the apa
 
 [Vårflodsparken](https://maps.app.goo.gl/G1fCK2GiDCCVW6vx6) playground and splash pad
 
-[Skogskyrkogården](https://goo.gl/maps/aW27BpJ2nDNzVKBs6) is a one of only three UNESCO world heritage sites in Stockholm. It's a huge cemetery with huge pine trees.
+[Skogskyrkogården](https://goo.gl/maps/aW27BpJ2nDNzVKBs6) is one of three UNESCO world heritage sites in Stockholm. It's a huge cemetery with huge pine trees. The other two are [Drottningholms slott](https://goo.gl/maps/bsjjWLbtBEFzaDDN8) and [Birka viking island](https://goo.gl/maps/k49Mw1NCx2Hxjc2s9).
 
 [Bryggartäppan](https://goo.gl/maps/oKEaQcSFr1i6Go1t8) playground in the style of old Stockholm
 
