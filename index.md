@@ -82,3 +82,6 @@ Bike keys and Vespa key is in the basket up to your right when you enter the apa
 
 [Tekniska museet](https://maps.app.goo.gl/82HnSZYNytbDoyVx9) - technical fun for young and old
 
+# Other places
+
+Checkout out the map of [our favourite places](https://drive.google.com/open?id=1NGujzVNI1lADjlOzOTOPcUww1ncUwS1S&usp=sharing)!
