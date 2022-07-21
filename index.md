@@ -68,7 +68,7 @@ Bike keys and Vespa key is in the basket up to your right when you enter the apa
 
 # Eating out
 
-[Palmyra](https://goo.gl/maps/PeLK7cuxkbyf1foX9) offers the best kebab and falafel in Stockholm
+[Palmyra](https://goo.gl/maps/PeLK7cuxkbyf1foX9) - the best kebab in Stockholm
 
 [BABAS Burgers](https://goo.gl/maps/U5UyMRwtskUBV3cFA) - Vide's favourite
 
