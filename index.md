@@ -36,10 +36,11 @@ The WiFi is called "BigHero6" with password "oriavehl".
 
 The trash room is located in the opposite building, to the right of the entrance.
 
-We left a cooler in the hallway which connects to the car cigarette outlet in case you go for a picnic.
+We left a cooler in the hallway which connects to the car cigarette outlet - could be useful on your trip to Gothenburg perhaps.
+
 We also left frisbee discs and a screwdriver to adjust height of bike saddles.
 
-# Vehicles
+# Bikes and Vespa
 
 There are bikes in the bike storage next to the parking if you want to borrow - use the apartment key to get in. We only have five bikes though. Code for the code locks is 5736.
 
