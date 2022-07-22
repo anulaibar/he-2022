@@ -80,6 +80,8 @@ Bike keys and Vespa key is in the basket up to your right when you enter the apa
 
 [The old town](https://goo.gl/maps/7V6eFs4tEFY5Dhwr5) - enjoy the cobbled streets and houses from the 15th century
 
+[Stockholms stadshus](https://maps.app.goo.gl/4719uNDowDXx13C28) - no need for the full tour, just buy separate ticket to go up the tower.
+
 ## Eating out
 
 [Palmyra](https://goo.gl/maps/PeLK7cuxkbyf1foX9) - the best kebab in Stockholm
