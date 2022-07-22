@@ -89,14 +89,16 @@ Egil recommends playing hide-and-seek in the park and a visit to the [Enskede ri
 
 [Mariatorget](https://goo.gl/maps/B7bCzf5L2fD9iKTBA) on Södermalm is a cosy area with second-hand shops [Stadsmissionen](https://goo.gl/maps/iYcXxe5ZXFzwnYWL9) and [Humana](https://g.page/second-hand-sodermalm?share). Alvar's favourite lunch place [Falafelbaren](https://g.page/falafelbaren?share) is around the corner. There's also [StikkiNikki](https://goo.gl/maps/7zBE7ydHQAUsXEeu6) icecream and [Lakritsroten](https://goo.gl/maps/NUhdMjE8B9XDdH9e7) all liqorice shop 😋. Make sure to visit [Mariaberget](https://goo.gl/maps/trKbbWdJAFFop2KBA) with old wooden houses and a great view of the city.
 
-[Bryggartäppan](https://goo.gl/maps/oKEaQcSFr1i6Go1t8) playground in the style of old Södermalm. Nearby there's Katarina bangata with small shops and cafés. Close by there's [Nytorget](https://goo.gl/maps/thqwyonxynnffPQz7) which is a hipster hub of Södermalm. There's [Stadsmissionen](https://goo.gl/maps/gHMnDKGG7ShML3q57) second-hand as well as [Grandpa](https://g.page/grandpastore?share) and [Cocktail](https://goo.gl/maps/k9KAnYQJcQKyDCSPA) which are pretty fun shops to check out. A few blocks to the north you find [Amida kolgrill](https://goo.gl/maps/SGPyH4aE54TFUovX8) which serves really tasty oriental charcoal grilled meat meat and vegetables. Further to the 
+[Bryggartäppan](https://goo.gl/maps/oKEaQcSFr1i6Go1t8) playground in the style of old Södermalm. Nearby there's Katarina bangata with small shops and cafés. Close by there's [Nytorget](https://goo.gl/maps/thqwyonxynnffPQz7) which is a hipster hub of Södermalm. There's [Stadsmissionen](https://goo.gl/maps/gHMnDKGG7ShML3q57) second-hand as well as [Grandpa](https://g.page/grandpastore?share) and [Cocktail](https://goo.gl/maps/k9KAnYQJcQKyDCSPA) which are pretty fun shops to check out. A few blocks to the north you find [Amida kolgrill](https://goo.gl/maps/SGPyH4aE54TFUovX8) which serves really tasty oriental charcoal grilled meat meat and vegetables.
 
 
 ## South Stockholm
 
-[Sätraskogens discgolfbana](https://goo.gl/maps/Sys8SUrsU3L47wT99) has nice nature and disc golf! While in the area there's also Skärholmen market with fruits and vegetables.
-
 [Bandängens parklek](https://goo.gl/maps/bdMMETFWuNLPZbf39) is a fun playground with a splash pad and some animals. Walking distance to the south you find [Burger mansion](https://g.page/theburgermansion?share) for lunch. Another 10 minute walk in Högdalen centrum there's Vide's favourite - [BABAS Burgers](https://goo.gl/maps/U5UyMRwtskUBV3cFA).
+
+[Sätraskogens discgolfbana](https://goo.gl/maps/Sys8SUrsU3L47wT99) has nice nature and disc golf!
+
+[Skärholmen market](https://goo.gl/maps/73Vwa43FNWbE86i39) has fresh fruits and vegetables. Next to the market [La Casa Damasco](https://goo.gl/maps/saDyGjWVHprmoBs99) serves turkish coffee and baclava. Inside the mall the [LEGO store](https://goo.gl/maps/kw5SDQFfVv2nHWKN6) has all the lego you can imagine.
 
 ## Central Stockholm
 
