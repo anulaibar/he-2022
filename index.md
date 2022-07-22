@@ -33,6 +33,8 @@ Our parking lot is no 3.
 
 ## Our home
 
+The main entrance opens with the apartment key, the plastic "blip" or by code 1425 (code works until 22:00).
+
 We made the beds with clean sheets for you.
 In the bathroom we put out towels for you also.
 
@@ -43,6 +45,9 @@ The trash room is located in the opposite building, to the right of the entrance
 We left a cooler in the hallway which connects to the car cigarette outlet - could be useful on your trip to Gothenburg perhaps.
 
 We also left frisbee discs and a screwdriver to adjust height of bike saddles.
+
+The washing machine has "i-DOS" meaning it doses detergent automatically.
+Refill with liquid detergent and make sure the "i-DOS" is lit on the display when starting a washing programme.
 
 ## Bikes and Vespa
 
