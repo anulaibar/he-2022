@@ -40,7 +40,7 @@ In the bathroom we put out towels for you also.
 
 The WiFi is called "BigHero6" with password "oriavehl".
 
-The trash room is located in the opposite building, to the right of the entrance.
+The trash room is located in the opposite building, to the right of the entrance. Use the apartment key to get in.
 
 We left a cooler in the hallway which connects to the car cigarette outlet - could be useful on your trip to Gothenburg perhaps.
 
