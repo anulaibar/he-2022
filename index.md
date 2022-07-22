@@ -70,11 +70,11 @@ Bike keys and Vespa key is in the basket up to your right when you enter the apa
 
 [Skogskyrkogården](https://goo.gl/maps/aW27BpJ2nDNzVKBs6) is one of three UNESCO world heritage sites in Stockholm. It's a huge cemetery with huge pine trees. The other two are [Drottningholms slott](https://goo.gl/maps/bsjjWLbtBEFzaDDN8) and [Birka viking island](https://goo.gl/maps/k49Mw1NCx2Hxjc2s9).
 
-[Bryggartäppan](https://goo.gl/maps/oKEaQcSFr1i6Go1t8) playground in the style of old Stockholm
+## South Stockholm
 
-## Further away
+[Bryggartäppan](https://goo.gl/maps/oKEaQcSFr1i6Go1t8) playground in the style of old Södermalm. Nearby there's Katarina bangata with small shops and cafés.
 
-[Sätraskogens discgolfbana](https://goo.gl/maps/Sys8SUrsU3L47wT99) has nice nature and disc golf!
+[Sätraskogens discgolfbana](https://goo.gl/maps/Sys8SUrsU3L47wT99) has nice nature and disc golf! While in the area there's also Skärholmen market with fruits and vegetables.
 
 [Bandängens parklek](https://goo.gl/maps/bdMMETFWuNLPZbf39) is a fun playground with a splash pad and some animals
 
