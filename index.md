@@ -1,4 +1,4 @@
-Soon your trip is starting, we wish you a safe journey to our home town!
+Soon your trip is starting, we wish you a safe journey to our home town! Check out the Google maps links below to find your way around.
 
 ## Finding the car
 
