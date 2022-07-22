@@ -1,5 +1,3 @@
-# Welcome to Stockholm
-
 Soon your trip is starting, we wish you a safe journey to our home town!
 
 ## Finding the car
@@ -61,38 +59,50 @@ Bike keys and Vespa key is in the basket up to your right when you enter the apa
 
 ![Vespa](./vespa.jpg)
 
+## Grocery shopping nearby
+
+[Lidl](https://g.page/lidl-enskedefaltet?share) is where we ususally go shopping, it's open until 21.
+
+[ICA Bea](https://goo.gl/maps/UKabastKbFz5EaD69)has groceries and on the lower floor tools, toys, clothes etc. Open until 22.
+
+[ICA Globen](https://goo.gl/maps/fb3H6RK9nKg6sU1d6) open until 21.
+
+[Systembolaget](https://goo.gl/maps/miv7Zt8h9VfHyjEE9) for wine, beer, liquor.
 
 ## In the neighbourhood
 
-[Enskedeparkens bageri](https://maps.app.goo.gl/DHUysJhRCNU6yC4g7) is our local café, a short walk through the park. Try the cinnamon and cardamom buns.
+Egil recommends playing hide-and-seek in the park and a visit to the [Enskede ridskola](https://goo.gl/maps/xGZnhQ2JN1qENPCL8) to watch the horses. Take a walk through [Enskede Gårds koloniträdgårdar](https://goo.gl/maps/92fwDv2FyW5iJvB1A) and [Dahliaträdgården](https://goo.gl/maps/MEDM36yyeAqtdnNS6) to enjoy the flowers.
 
-[Vårflodsparken](https://maps.app.goo.gl/G1fCK2GiDCCVW6vx6) playground and splash pad
+[Enskedeparkens bageri](https://maps.app.goo.gl/DHUysJhRCNU6yC4g7) is closed for summer and opens again August 4. It's our local café where you should try the cinnamon and cardamom buns.
+
+[Vårflodsparken](https://maps.app.goo.gl/G1fCK2GiDCCVW6vx6) has a playground and a splash pad.
 
 [Skogskyrkogården](https://goo.gl/maps/aW27BpJ2nDNzVKBs6) is one of three UNESCO world heritage sites in Stockholm. It's a huge cemetery with huge pine trees. The other two are [Drottningholms slott](https://goo.gl/maps/bsjjWLbtBEFzaDDN8) and [Birka viking island](https://goo.gl/maps/k49Mw1NCx2Hxjc2s9).
 
-## South Stockholm
+[Tolv Stockholm](https://goo.gl/maps/1eFS4QkupsnwanZr5) is underneath the Tele2 fotball arena and has bowling, fun golf, pool tables, restaurants etc.
 
-[Bryggartäppan](https://goo.gl/maps/oKEaQcSFr1i6Go1t8) playground in the style of old Södermalm. Nearby there's Katarina bangata with small shops and cafés.
+[Globen shopping](https://goo.gl/maps/AEuHaHGQPBmrHpWK9) is our local mall, not too exciting, but has all kinds of shops and restaurants.
+
+[Palmyra](https://goo.gl/maps/PeLK7cuxkbyf1foX9) in Årsta serves the best kebab in Stockholm
+
+## Södermalm
+
+[Mariatorget](https://goo.gl/maps/B7bCzf5L2fD9iKTBA) on Södermalm is a cosy area with second-hand shops [Stadsmissionen](https://goo.gl/maps/iYcXxe5ZXFzwnYWL9) and [Humana](https://g.page/second-hand-sodermalm?share). Alvar's favourite lunch place [Falafelbaren](https://g.page/falafelbaren?share) is around the corner. There's also [StikkiNikki](https://goo.gl/maps/7zBE7ydHQAUsXEeu6) icecream and [Lakritsroten](https://goo.gl/maps/NUhdMjE8B9XDdH9e7) all liqorice shop 😋. Make sure to visit [Mariaberget](https://goo.gl/maps/trKbbWdJAFFop2KBA) with old wooden houses and a great view of the city.
+
+[Bryggartäppan](https://goo.gl/maps/oKEaQcSFr1i6Go1t8) playground in the style of old Södermalm. Nearby there's Katarina bangata with small shops and cafés. Close by there's [Nytorget](https://goo.gl/maps/thqwyonxynnffPQz7) which is a hipster hub of Södermalm. There's [Stadsmissionen](https://goo.gl/maps/gHMnDKGG7ShML3q57) second-hand as well as [Grandpa](https://g.page/grandpastore?share) and [Cocktail](https://goo.gl/maps/k9KAnYQJcQKyDCSPA) which are pretty fun shops to check out. A few blocks to the north you find [Amida kolgrill](https://goo.gl/maps/SGPyH4aE54TFUovX8) which serves really tasty oriental charcoal grilled meat meat and vegetables. Further to the 
+
+
+## South Stockholm
 
 [Sätraskogens discgolfbana](https://goo.gl/maps/Sys8SUrsU3L47wT99) has nice nature and disc golf! While in the area there's also Skärholmen market with fruits and vegetables.
 
-[Bandängens parklek](https://goo.gl/maps/bdMMETFWuNLPZbf39) is a fun playground with a splash pad and some animals
+[Bandängens parklek](https://goo.gl/maps/bdMMETFWuNLPZbf39) is a fun playground with a splash pad and some animals. Walking distance to the south you find [Burger mansion](https://g.page/theburgermansion?share) for lunch. Another 10 minute walk in Högdalen centrum there's Vide's favourite - [BABAS Burgers](https://goo.gl/maps/U5UyMRwtskUBV3cFA).
+
+## Central Stockholm
 
 [The old town](https://goo.gl/maps/7V6eFs4tEFY5Dhwr5) - enjoy the cobbled streets and houses from the 15th century
 
 [Stockholms stadshus](https://maps.app.goo.gl/4719uNDowDXx13C28) - no need for the full tour, just buy separate ticket to go up the tower.
-
-## Eating out
-
-[Palmyra](https://goo.gl/maps/PeLK7cuxkbyf1foX9) - the best kebab in Stockholm
-
-[BABAS Burgers](https://goo.gl/maps/U5UyMRwtskUBV3cFA) - Vide's favourite
-
-[Falafelbaren](https://g.page/falafelbaren?share) - Alvars favourite
-
-[Pong](https://goo.gl/maps/ohdbs99tKjqSdEvP9) - Our go-to restaurant for birthdays, they offer japanese, chinese and thai food buffet
-
-## Museums
 
 [Vasamuseet](https://maps.app.goo.gl/VGDjsHmyvSDkVL3t7) - the ship that sunk on it's maiden voyage 400 years ago and was later brought up from the bottom of the sea
 
