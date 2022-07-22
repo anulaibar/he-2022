@@ -63,11 +63,11 @@ Bike keys and Vespa key is in the basket up to your right when you enter the apa
 
 [Lidl](https://g.page/lidl-enskedefaltet?share) is where we ususally go shopping, it's open until 21.
 
-[ICA Bea](https://goo.gl/maps/UKabastKbFz5EaD69)has groceries and on the lower floor tools, toys, clothes etc. Open until 22.
+[ICA Bea](https://goo.gl/maps/UKabastKbFz5EaD69) has an additional lower floor with tools, toys, clothes etc. Open until 22.
 
-[ICA Globen](https://goo.gl/maps/fb3H6RK9nKg6sU1d6) open until 21.
+[ICA Globen](https://goo.gl/maps/fb3H6RK9nKg6sU1d6) is open until 21.
 
-[Systembolaget](https://goo.gl/maps/miv7Zt8h9VfHyjEE9) for wine, beer, liquor.
+[Systembolaget](https://goo.gl/maps/miv7Zt8h9VfHyjEE9) has beer, wine and liquor.
 
 ## In the neighbourhood
 
